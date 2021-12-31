@@ -1,6 +1,6 @@
 beleş vds aga çok iyi demi? 🤙
 **MERİAZ HAZRETLERİ GURULAR SUNAR**
-`Ewing-VDS Nasıl Kurulur?`
+`Meriaz-VDS Nasıl Kurulur?`,
 
 ### NASIL OLUŞTURULURUM
 ```
