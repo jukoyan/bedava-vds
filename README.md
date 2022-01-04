@@ -1,5 +1,5 @@
 beleş vds aga çok iyi demi? 🤙
-**MERİAZ HAZRETLERİ GURULAR SUNAR**
+**JUKOYAN HAZRETLERİ GURULAR SUNAR**
 `Meriaz-VDS Nasıl Kurulur?`,
 
 ### NASIL OLUŞTURULURUM
