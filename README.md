@@ -1,6 +1,6 @@
 beleş vds aga çok iyi demi? 🤙
 **JUKOYAN HAZRETLERİ GURULAR SUNAR**
-`Meriaz-VDS Nasıl Kurulur?`,
+`Jukoyan-VDS Nasıl Kurulur?`,
 
 ### NASIL OLUŞTURULURUM
 ```
